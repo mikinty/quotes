@@ -5,7 +5,8 @@ Tidbits of knowledge and interesting/funny quotes
 
 ## wisdom 
 
-- She describes in minute detail the fact that these problem gamblers aren’t necessarily seeking wins, exactly. What they’re looking for is a feeling, a sensation of transcendence that playing these slot machines provides. The most common name for this feeling, one where time itself seems to melt away, is “the zone.” (Laws of Trading, Lebron pg. 6)
+- She describes in minute detail the fact that these problem gamblers aren’t necessarily seeking wins, exactly. What they’re looking for is a feeling, a sensation of transcendence that playing these slot machines provides. The most common name for this feeling, one where time itself seems to melt away, is “the zone.” (_Laws of Trading_, Lebron pg. 6. I think the actual source is _Addiction by Design_)
+- _Solanin_ is a story about rejecting that. It’s about how adults who go around thinking “oh, whatever” are losers. And because I’m the one who said that, I couldn’t ever let myself brush anything off with “whatever”. ([Interview with Inio Asano about _Osayumi Punpun_](https://mangabrog.wordpress.com/2014/07/06/inio-asano-interview-reality-is-tough-so-read-this-manga-about-cute-girls-and-feel-better/))
 
 ## funny
 - Kmoch also wrote an article about his nine years with Nimzowitsch:
