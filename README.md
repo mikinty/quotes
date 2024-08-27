@@ -19,3 +19,7 @@ Nimzowitsch's colleague Tartakower observed of him, "He pretends to be crazy in 
 
 - In 纽约客, the narrator meets his wife-to-be's friends, and is utterly struck by 李彤's beauty. The description is super fanciful and is so outta pocket to say at a wedding.
 > 至于李彤的模样儿我却觉得慧芬过分低估了些。李彤不仅自以为漂亮，她着实美得惊人。像一轮骤从海里跳出来的太阳，周身一道道的光芒扎得人眼睛发疼的。李彤的身材十分高挑，五官轮廓都异常飞扬显突，一双炯炯露光的眼睛，一闪便把人罩住了，她那一头大鬈蓬松的乌发，有三分之二掠过左额，堆泻到肩上来，左边平着耳际却插着一枚碎钻镶成的大蜘蛛，蜘蛛的四对足紧紧蟠在樂发上，一个鼓圆的身子却高高地飞翘起来。李彤那天穿着一袭银白底子飘满了枫叶的闪光缎子旗袍，那些枫叶全有巴掌大，红得像一球球火焰一般。女人看女人到底不太准确，我不禁猜疑慧芬不愿夸赞李彤的模样，恐怕心里也有几分不服。
+
+- Prokofiev died at age 61 on 5 March 1953, the same day as Joseph Stalin. He had lived near Red Square, and for three days throngs gathered to mourn Stalin, making it impossible to hold Prokofiev's funeral service at the headquarters of the Soviet Composers' Union. Because the hearse was not allowed near Prokofiev's house, his coffin had to be moved by hand through back streets in the opposite direction of the masses of people going to visit Stalin's body. About 30 people attended the funeral, Shostakovich among them. The leading Soviet musical periodical reported Prokofiev's death as a brief item on page 116 (the first 115 pages were devoted to Stalin's death).
+
+(From [Wikipedia](https://en.wikipedia.org/wiki/Sergei_Prokofiev#Death))
