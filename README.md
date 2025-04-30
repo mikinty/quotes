@@ -23,3 +23,9 @@ Nimzowitsch's colleague Tartakower observed of him, "He pretends to be crazy in 
 - Prokofiev died at age 61 on 5 March 1953, the same day as Joseph Stalin. He had lived near Red Square, and for three days throngs gathered to mourn Stalin, making it impossible to hold Prokofiev's funeral service at the headquarters of the Soviet Composers' Union. Because the hearse was not allowed near Prokofiev's house, his coffin had to be moved by hand through back streets in the opposite direction of the masses of people going to visit Stalin's body. About 30 people attended the funeral, Shostakovich among them. The leading Soviet musical periodical reported Prokofiev's death as a brief item on page 116 (the first 115 pages were devoted to Stalin's death).
 
 (From [Wikipedia](https://en.wikipedia.org/wiki/Sergei_Prokofiev#Death))
+
+- A newcomer to the state, McCain was termed a carpetbagger. McCain responded to a voter making that charge with what a Phoenix Gazette columnist later described as "the most devastating response to a potentially troublesome political issue I've ever heard":
+
+> Listen, pal. I spent 22 years in the Navy. My father was in the Navy. My grandfather was in the Navy. We in the military service tend to move a lot. We have to live in all parts of the country, all parts of the world. I wish I could have had the luxury, like you, of growing up and living and spending my entire life in a nice place like the First District of Arizona, but I was doing other things. As a matter of fact, when I think about it now, the place I lived longest in my life was Hanoi.
+
+ (From [Wikipedia](https://en.wikipedia.org/wiki/John_McCain))
