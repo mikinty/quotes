@@ -9,6 +9,10 @@ Tidbits of knowledge and interesting/funny quotes
 - _Solanin_ is a story about rejecting that. It’s about how adults who go around thinking “oh, whatever” are losers. And because I’m the one who said that, I couldn’t ever let myself brush anything off with “whatever”. ([Interview with Inio Asano about _Osayumi Punpun_](https://mangabrog.wordpress.com/2014/07/06/inio-asano-interview-reality-is-tough-so-read-this-manga-about-cute-girls-and-feel-better/))
 - For a few short minutes, he was the most free man on Earth. He was humble, he was sorry, but most importantly he was alive. ([2018 Horizon Air Bombardier Q400 incident](https://www.youtube.com/watch?v=TYpaf8WdppM))
 
+## beautiful
+
+- 醉后不知天在水，满船清梦压星河
+
 ## funny
 - Kmoch also wrote an article about his nine years with Nimzowitsch:
 
