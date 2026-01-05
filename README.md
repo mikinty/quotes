@@ -8,6 +8,8 @@ Tidbits of knowledge and interesting/funny quotes
 - She describes in minute detail the fact that these problem gamblers aren’t necessarily seeking wins, exactly. What they’re looking for is a feeling, a sensation of transcendence that playing these slot machines provides. The most common name for this feeling, one where time itself seems to melt away, is “the zone.” (_Laws of Trading_, Lebron pg. 6. I think the actual source is _Addiction by Design_)
 - _Solanin_ is a story about rejecting that. It’s about how adults who go around thinking “oh, whatever” are losers. And because I’m the one who said that, I couldn’t ever let myself brush anything off with “whatever”. ([Interview with Inio Asano about _Osayumi Punpun_](https://mangabrog.wordpress.com/2014/07/06/inio-asano-interview-reality-is-tough-so-read-this-manga-about-cute-girls-and-feel-better/))
 - For a few short minutes, he was the most free man on Earth. He was humble, he was sorry, but most importantly he was alive. ([2018 Horizon Air Bombardier Q400 incident](https://www.youtube.com/watch?v=TYpaf8WdppM))
+- Tom Brady on the pain of losing:
+> I always felt like you should sit with that pain. The flight home should be painful. It should be disappointing. You shouldn’t try to escape it. You shouldn’t make excuses for it. You need to feel it… and then you need to have some actionable items to GO DO SOMETHING ABOUT IT. I think naturally the human nature part about all of us is to say ‘oh it’s just one game or one season’ and make excuses. And then when you live in those excuses, you don’t live in the solutions. And those solutions are to get back to work, let’s care more, have more discipline & better practice habits.
 
 ## beautiful
 
